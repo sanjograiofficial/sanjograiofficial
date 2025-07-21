@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm still in my learning phase.
+Growing...
 
 
 ## 🌐 Socials:
